@@ -69,7 +69,7 @@ The thousands of engines started to growl, as the last late few boarded their sh
 
 As soon as the last door shut, without wasting a second, he strummed his keyboard on the see through tablet. White light lit the transparent screen at the touch highlighting his white gloves.
 
-" Expedition to Launch Conductor. All explorers are aboard. Over." The conductor signaled to the radio coms on his wrist watch. 
+" Launch Conductor to Expedition Leaders. All explorers are aboard. Over." The conductor signaled to the radio coms on his wrist watch. 
 
 " Copy that Launch Conductor. Over. " A pilot replied. 
 " Copy. Over. " Another said. 
