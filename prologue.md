@@ -63,9 +63,9 @@ He exhaled loudly through his rough brown beard sprinkled with silver strands. T
 
 " CONDUCTOR TO ALL EXPLORERS. ALL ABOARD ! " he repeated raucously. 
 
-He squinted as he carefully scanned the platform, grimacing in contempt whenever his gazed met any of travelers rushing to the gates. Although most had already boarded their designated vessels, the few late that hurried to their seats we're all different from one after the other. The conductor caught a young teen scraping her puffy bags unto the platform floor. She dropped her tickets only to come rushing back to grab then as they twirled in the wind. Then resumed her run towards a massive grey ship with thick yellow lines and characters the size of buildings prindted on its starboard port side  that read "E-0003". Next he spotted a man running, tighlty holding his boys and girls as he struggled to follow his wife who also had her arms around another child. They ran in the direction of another ship. And finally, he barely made out the shape of a tall four armed creature carrying large bright yellow containers with bold black markings. As he boarded a tiny rectangular ship that looked like a rather large television remote, his heavy footstep echoed in the station like deep timpani drums.
+He squinted as he carefully scanned the platform, grimacing in contempt whenever his gazed met any of travelers rushing to the gates. Although most had already boarded their designated vessels, the few late that hurried to their seats were all different from one after the other. The conductor caught a young teen scraping her puffy bags unto the platform floor. She dropped her tickets only to come rushing back to grab then as they twirled in the wind. Then resumed her run towards a massive grey ship with thick yellow lines and characters the size of buildings prindted on its starboard port side  that read "E-0003". Next he spotted a man running, tightly holding his boys and girls as he struggled to follow his wife who also had her arms around another child. They ran in the direction of another ship. And finally, he barely made out the shape of a tall four armed creature carrying large bright yellow containers with bold black markings. As he boarded a tiny rectangular ship that looked like a rather large television remote, his heavy footstep echoed in the station like deep timpani drums.
 
-The thousands of engines started to growl, as the last late few boarded their ships. All blast doors whirringly closed on after the other. Then they snapped shut one by one like giant game slot cartridges. 
+The thousands of engines started to growl, as the last late few boarded their ships. All blast doors whirring closed on after the other. Then they snapped shut one by one like giant game slot cartridges. 
 
 As soon as the last door shut, without wasting a second, he strummed his keyboard on the see through tablet. White light lit the transparent screen at the touch highlighting his white gloves.
 
@@ -75,9 +75,9 @@ As soon as the last door shut, without wasting a second, he strummed his keyboar
 " Copy. Over. " Another said. 
 " Copy, Launch Conductor. Over " a third repeated. 
 " You are go for launch. Over. " the conductor responded. 
-" Receiced. Over. Thank you Launch Conductor " thanked the first pilot.
-" Well receiced. Over.  " the second said. 
-" Receiced. Over. Let's light this candle. Over.  " answered the third. 
+" Received. Over. Thank you Launch Conductor " thanked the first pilot.
+" Well received. Over.  " the second said. 
+" Received. Over. Let's light this candle. Over.  " answered the third. 
 
 And as the rose evening sky started to set and as the engines started ignition, the flames and sparks illuminated the empty platform.
 
