@@ -56,10 +56,10 @@ ___
 
 ### Conductor
 
-" ALL ABOARD ! " he shouted in voice like a foghorn.
+" ALL ABOARD ! " he shouted in a voice like a foghorn.
 
 The conductor wore a beautiful velvet blue coat that fell to his knees like a water fall. 
-He exhaled loudly through his rough brown beard sprinkled with silver strands. Then, he inhaled heavily without moving his large pupils, stomach bulging, a glass tablet in his left hand, which gave him a smiling puppet like look. 
+He exhaled loudly through his rough brown beard sprinkled with silver strands. Then, he inhaled heavily without moving his large pupils, tense thick brows, stomach bulging, a glass tablet in his left hand, which gave him a smiling puppet like look. 
 
 " CONDUCTOR TO ALL EXPLORERS. ALL ABOARD ! " he repeated raucously. 
 
