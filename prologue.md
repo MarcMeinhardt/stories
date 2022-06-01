@@ -6,6 +6,8 @@
 
 **Author's notes – An Epic Fight**
 
+### Author
+
 This is a story of war, a poem of life and the tales of people.
 
 These are the stories of children, teens and adults no different from you or me. 
@@ -13,7 +15,11 @@ Tempted by greed, lust, envy and power. Challenged by war, death and time. Teste
 
 
 
-**Prologue – Millenium**
+**Prologue One – Millenium**
+
+### Narrator
+
+Boom.
 
 Lightning struck. The choir chanted. The violins played. And the drums, they rumbled. 
 
@@ -23,22 +29,29 @@ Soldiers fell.
 
 Men fell.
 
-
-War. That’s what started and ended everything. Thousands of years of greed and blood lust shaped it all, from the shard like mountains, scattered the space debris that left traces of titanic explosions frozen in time, the makeshift cityscapes like mechanical mold.
-War, it shaped all you see before you. 
-
-What once was peaceful and prosperous worlds is now just remnants and fragments of ancient and aging civilizations. Now, scavengers, warmongers and power hungry lords rule the systems.
-
-But there, past the skeleton field, do you see ? Past the tank and ship carcasses that covered the bright bushy fields that went on to the horizon, lay a figure.
+" War. That’s what started everything. It's also what ended everything. Thousands of years of lust, greed and thirst for blood and power shaped it all, from the chains of shard like mountains, to scattered space debris frozen in time, to the makeshift cityscapes like metallic, synthetic mold.
+It shaped all you see before you. " he said in a gravelly voice.
 
 
-Then, with one big bang, the night skies lit up like a trillion stars.
+And with one crashing big bang, the night skies lit up like a trillion stars.
 
-And everything went dark. 
+Bang.
+
+Then everything went dark. 
 
 Everything went dark for a really really long time…
 
 
+**Prologue Two – Expedition One**
 
 
+### Narrator
 
+
+<!-- 
+
+Draft 
+
+What once was peaceful and prosperous worlds is now just remnants and fragments of ancient and aging civilizations. Now, scavengers, warmongers and power hungry lords rule the systems.
+
+But there, past the skeleton field, do you see ? Past the tank and ship carcasses that covered the bright bushy fields that went on to the horizon, lay a figure. -->
