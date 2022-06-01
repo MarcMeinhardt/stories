@@ -81,7 +81,7 @@ As soon as the last door shut, without wasting a second, he strummed his keyboar
 
 And as the rose evening sky started to set and as the engines started ignition, the flames and sparks illuminated the empty platform.
 
-All ships roared out of the atmosphere and sailed to the horizon.
+Some ships roared out of the atmosphere and others sailed to the horizon all while the conductor's lonely silhouette stood on the now empty white platform.
 
 
 
