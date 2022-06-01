@@ -79,7 +79,7 @@ As soon as the last door shut, without wasting a second, he strummed his keyboar
 " Well received. Over.  " the second said. 
 " Received. Over. Let's light this candle. Over.  " answered the third. 
 
-And as the rose evening sky started to set and as the engines started ignition, the flames and sparks illuminated the empty platform.
+And as the rose evening sky started to set and as the engines started ignition, the flames and sparks illuminated the station's steel columns.
 
 Some ships roared out of the atmosphere and others sailed to the horizon all while the conductor's lonely silhouette stood on the now empty white platform.
 
