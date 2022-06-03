@@ -1,2 +1,2 @@
 # stories
-A few stories I write
+A few stories I wrote and continue writing.
